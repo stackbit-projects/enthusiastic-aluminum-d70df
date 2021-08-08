@@ -50,13 +50,14 @@ Apparently, Japan is covered in magical and irresistibly cute animal sanctuaries
 
 ![](/images/scan.2.jpg)
 
-> The fox never found a better messenger than himself.
+> Chester Place where I grew up from 1954 to 1968 (anyone else remember living in this area at this time?) 
 
 As the programming of Japan’s traditional culture gradually weakened from 1945 on, individual Japanese began to exercise some personal choice in their private lives. But the newly mandated freedoms had a minimal effect on a number of key institutions.
 
 ![](/images/scan.3.jpg)
 
-Japan’s educational, economical and political systems remained hidebound bulwarks of traditional behavior. The politically guided economic system in particular was able to generate enormous power that could be directed with the precision of a laser beam.
+> Top of Chester Place where it meets Fair View. A friend of mine, Chris Roberts lived here (house off picture just to the left.)
+>
 
 ![](/images/scan.4.jpg)
 
